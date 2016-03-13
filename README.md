@@ -1,4 +1,4 @@
-Visit this site at https://atamproductions.github.io/status/
+Visit this site at https://atamproductions.github.io/status/ or https://status.atam.ca
 
 🍔
 🍟
